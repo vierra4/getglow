@@ -67,6 +67,3 @@ For larger beauty franchises and brands with multiple storefronts, Glow provides
 * **[Visit Our Homepage](https://www.getglow.site/)**
 * **[Create a Free Account](https://www.getglow.site/register)**
 * **[Read Our Business Blog](https://www.getglow.site/blog)**
-
----
-*© 2026 Glowlight Ltd (trading as Glow). Kigali, Rwanda. All rights reserved.*
